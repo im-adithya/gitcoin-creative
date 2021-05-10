@@ -8,7 +8,7 @@ Flag on the planet - Own where you earn
 
 Rocket - Learning and Moving Forward
 
-Top and Bottom Center - Financial Freedom, Financial Soverignty
+Top and Bottom Center - Financial Freedom, Financial Sovereignty
 
 Left and Right Center - Open APIs and connectivity
 
